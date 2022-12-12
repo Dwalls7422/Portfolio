@@ -1,2 +1,0 @@
-# krishna-shankar-portfolio
-Portfolio
